@@ -142,7 +142,7 @@ Just open an issue or create a pull request.
 
 ## 📬 Connect
 
-**LinkedIn:** [https://www.linkedin.com/in/arjun-shukla-0280652b0](https://www.linkedin.com/in/arjun-shukla-0280652b0)
+**LinkedIn:** [https://www.linkedin.com/in/arjun-shukla-0280652b0](https://www.linkedin.com/in/shuklarjun28)
 
 ---
 
